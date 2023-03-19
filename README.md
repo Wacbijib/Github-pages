@@ -1,5 +1,5 @@
 # Тайлер Дёрден
-![](https://static.wikia.nocookie.net/warrior/images/a/ad/Deathofkevincrow.jpg/revision/latest/scale-to-width-down/699?cb=20160202110346&path-prefix=ru)
+![](https://citaty.info/files/portraits/tyler_durden.jpeg)
 
 __Тайлер Дёрден__ — вымышленный персонаж романа Чака Паланика "Бойцовский клуб" и снятого по его мотивам одноимённого фильма Дэвида Финчера.
 
